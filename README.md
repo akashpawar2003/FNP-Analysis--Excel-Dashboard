@@ -33,13 +33,3 @@ Optimize product offerings: Focus on promoting and restocking Magnam Set Gift, C
 Overall, the project demonstrates strong financial performance with clear areas for further growth and optimization.
 
 
-
-
-
-
-
-
-
-
-
-Gemini can mak
